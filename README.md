@@ -1,7 +1,7 @@
 jjglkklsvcxz- 👋 Hi, I’m @kuharolh
-- 👀 I’m interested insda ...acszxc
+- 👀 I’m interested iораьnsda ...acszxc
 - 🌱 I’m currently lecaxzczxczdsa
-kuharolh/kuharolh is a ✨ special ✨ reposaitory because its `README.md` (this file) appears on your GitHub profile.d
+kuharolh/kuharolh is a ✨ special ✨ reposaitory because its `README.md` (this file) ваappears on your GitHub profile.d
 You can click the Preview lindasvck to take a look at your changessaxzc.
 --->vdf
 mfiujgbcvx
